@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LuciooG
+- 👋 Hi, I’m @LuciooG (Vu Le Hung everybody call me : Hung Cho Doi)
 - 👀 I’m interested in custom system performance, easy to user, cheap and User emotions.
 - 🌱 I’m currently learning Mechatronics in Branch of University of Transport in Ho Chi Minh City
 - 💞️ I’m looking to friend.
